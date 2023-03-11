@@ -14,7 +14,7 @@
 
 - 🔭 I’m currently working on **My Self🙃**
 - 🌱 I’m currently learning **to survive😵‍💫**
-- 👯 I’m *looking to collaborate* on **Android📜 projects.**
+- 👯 I’m *looking to collaborate* on **Android projects.**
 - 🤔 I’m looking for *help* with **wifi connection 🌐**
 - 💬 *Ask me* about **why do I think aliens 👽 exist.**
 - 😄 Pronouns: [*He/Him*](https://pronoun.is/he)
