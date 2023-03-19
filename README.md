@@ -16,7 +16,7 @@
 - 🌱 I’m currently learning **to survive😵‍💫**
 - 👯 I’m *looking to collaborate* on **Android projects.**
 - 🤔 I’m looking for *help* with **wifi connection 🌐**
-- 💬 *Ask me* about **why do I think aliens 👽 exist.**
+- 💬 *Ask me* about **: Anything Android!**
 - 😄 Pronouns: [*He/Him*](https://pronoun.is/he)
 - ⚡ Fun fact: I love to sing and play drum.
 
