@@ -11,10 +11,7 @@
  
  ![Lines of code](https://img.shields.io/badge/From%20Hello%20World%20I've%20written-4124786+%20Lines%20of%20code-blue)
 
-- 🔭 I’m currently working on **My Self🙃**
-- 🌱 I’m currently learning **to survive😵‍💫**
 - 👯 I’m *looking to collaborate* on **Android projects.**
-- 🤔 I’m looking for *help* with **wifi connection 🌐**
 - 💬 *Ask me* about **: Anything Android!**
 - 😄 Pronouns: [*He/Him*](https://pronoun.is/he)
 - ⚡ Fun fact: I love to sing and play drum.
